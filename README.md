@@ -8,5 +8,4 @@ Please enjoy :)
 
 Created by
 
-Sam Lamoureux
-Sarah Taylor
+Sam Lamoureux and Sarah Taylor
